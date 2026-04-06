@@ -1,1 +1,1 @@
-A blog on firness and health
+A blog on fitness and health
